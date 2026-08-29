@@ -1,3 +1,0 @@
-# VetPrime
-
-## Screenshots
